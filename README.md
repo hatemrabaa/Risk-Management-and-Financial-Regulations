@@ -1,1 +1,1 @@
-# Risk-Management-and-Financial-Regulations
+# Risk Management and Financial Regulations
